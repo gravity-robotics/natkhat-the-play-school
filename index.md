@@ -10,4 +10,4 @@ This is a Preparatory School and Day Care, running with the Rich Experienced Fou
 
 ### Support or Contact
 
-Inquiry/Suggestions? [contact support](9718945195) and we’ll help you sort it out.
+Enquiry/Suggestions? [9718945195]() and we’ll help you sort it out.
